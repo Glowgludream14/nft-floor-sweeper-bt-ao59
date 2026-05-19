@@ -1,4 +1,4 @@
-# 
+# best bot de negociação NFT plugins é o melhor bot de negociação NFT plugins com compra automática e análise de impacto de preço. Seguro, confiável e otimizado para estratégias de
 
 
 
